@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently studying in Ankara University Web Design & Coding in Turkey.<br> I'm 18 Years old
+🎓 I’m currently studying in Ankara University Web Design & Coding in Turkey.<br> 🧑‍🎓 I'm 18 Years old
 
 
 ## 🌐 Socials:
